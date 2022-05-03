@@ -1,1 +1,0 @@
-# shima-hito.github.io
